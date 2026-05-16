@@ -1,4 +1,4 @@
-# 
+# Enhance GitHub Desktop for PC | GitHub Desktop for Windows with premium GitHub Desktop for PC | GitHub Desktop for Windows Snippet | conflict-resolution + cherry-picking, the #1
 
 
 
